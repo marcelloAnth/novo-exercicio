@@ -1,3 +1,3 @@
-//Apenas criando conflitos de código
+//Apenas criando conflito de código
 ??
 
